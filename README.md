@@ -1,1 +1,0 @@
-# Wuertz-Media-hjemmeside
